@@ -1,4 +1,4 @@
-## (https://i.pinimg.com/736x/3d/09/4b/3d094bdfc83978b0f557d23dd4fb08a0.jpg)
+##![Uploading image.png…]()
 
 <!--
 **personlovelyy/personlovelyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
