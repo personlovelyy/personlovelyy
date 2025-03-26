@@ -1,5 +1,5 @@
 ![image](https://github.com/user-attachments/assets/8f498779-f752-43c4-8499-0cdc4097d3c3)
-                        "𝙈𝙖𝙮 𝙬𝙚 𝙧𝙚𝙪𝙣𝙞𝙩𝙚.."
+                   
 
 
 <!--
